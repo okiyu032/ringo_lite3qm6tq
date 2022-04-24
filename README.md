@@ -1,1 +1,0 @@
-# ringo_lite3qm6tq
